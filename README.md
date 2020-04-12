@@ -1,3 +1,3 @@
-Nama : 
+Nama : Reza Arisandy Safruddin
 
-NIM  :
+NIM  : D121181016
